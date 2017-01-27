@@ -1,0 +1,2 @@
+
+> citação longa e filosofica
