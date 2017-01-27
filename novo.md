@@ -1,2 +1,2 @@
 
-> citação longa e filosofica
+> citação longa e filosofica - clarice lispector
